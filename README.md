@@ -9,6 +9,7 @@
 📍 **Hosted on:** *Available open source*  
 🎯 **Target Audience:** *Children (Ages 5-12), Educators, Parents, Animal Welfare Organizations*  
 📽 Watch Our Project introductory Vlog: https://www.youtube.com/watch?v=s20I1a8Wmjg
+📽 Watch Our Project commercial video: https://youtu.be/PaFKtzqqYLU
 
 ---
 
